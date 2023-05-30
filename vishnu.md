@@ -1,24 +1,24 @@
 # SELF INTRODUCTION
-## PRINCE KRISHNA K.
-PRINCE KRISHNA K.
-1. 27/02/2004
-2. E-MAIL ID-princekrishnakichu10@gmail.com
-3. PH NO:9188077691
+## VISHNU PB.
+VISHNU PB.
+1. 04/01/2003
+2. E-MAIL ID-vishnubaburajan03@gmail.com
+3. PH NO:9061148351
 
 ```
-It is my honor to introduce a remarkable individual who embodies dedication, hard work, and honesty. Please join me in welcoming Prince Krishna K, a young and talented student in the field of computer engineering.
+It is my honor to introduce a remarkable individual who embodies dedication, hard work, and honesty. Please join me in welcoming Vishnu PB, a young and talented student in the field of computer engineering.
 
-At the age of 19, Prince Krishna has already demonstrated a profound commitment to his education and personal growth. Born on the 27th of February, 2004, he possesses a thirst for knowledge that propels him forward on his journey of intellectual discovery.
+At the age of 20, Vishnu PB has already demonstrated a profound commitment to his education and personal growth. Born on the 4th of January, 2003, he possesses a thirst for knowledge that propels him forward on his journey of intellectual discovery.
 
-Currently enrolled at GPTC Chelakkara, Prince Krishna excels in the field of computer engineering. His passion for this rapidly evolving discipline fuels his drive to learn and apply the latest technological advancements. With an unwavering determination to succeed, he strives to push the boundaries of his understanding and embrace new challenges with enthusiasm.
+Currently enrolled at GPTC Chelakkara, Vishnu PB excels in the field of computer engineering. His passion for this rapidly evolving discipline fuels his drive to learn and apply the latest technological advancements. With an unwavering determination to succeed, he strives to push the boundaries of his understanding and embrace new challenges with enthusiasm.
 
-Prince Krishna's peers and mentors hold him in high regard for his remarkable work ethic and unwavering dedication. His commitment to excellence shines through in every project he undertakes, as he consistently delivers outstanding results. Whether it's designing innovative software solutions or tackling complex programming problems, Prince Krishna's diligence and perseverance never cease to impress those around him.
+Vishnu PB's peers and mentors hold him in high regard for his remarkable work ethic and unwavering dedication. His commitment to excellence shines through in every project he undertakes, as he consistently delivers outstanding results. Whether it's designing innovative software solutions or tackling complex programming problems, Vishnu PB's diligence and perseverance never cease to impress those around him.
 
-In addition to his academic pursuits, Prince Krishna stands as a paragon of integrity and honesty. He understands the importance of upholding ethical principles and demonstrates a strong moral compass in all aspects of his life. His peers and teachers admire his integrity, recognizing him as someone who can be trusted and relied upon.
+In addition to his academic pursuits, Vishnu PB stands as a paragon of integrity and honesty. He understands the importance of upholding ethical principles and demonstrates a strong moral compass in all aspects of his life. His peers and teachers admire his integrity, recognizing him as someone who can be trusted and relied upon.
 
-As Prince Krishna continues to progress in his academic journey, his dedication, hard work, and honesty will undoubtedly pave the way for a bright future. With his unwavering commitment to personal growth and the pursuit of knowledge, he is poised to make significant contributions to the field of computer engineering and beyond.
+As Vishnu PB continues to progress in his academic journey, his dedication, hard work, and honesty will undoubtedly pave the way for a bright future. With his unwavering commitment to personal growth and the pursuit of knowledge, he is poised to make significant contributions to the field of computer engineering and beyond.
 
-Ladies and gentlemen, please join me in acknowledging the exceptional qualities and achievements of Prince Krishna K. We eagerly anticipate the remarkable accomplishments that lie ahead for this remarkable young individual.
+Ladies and gentlemen, please join me in acknowledging the exceptional qualities and achievements of Vishnu PB. We eagerly anticipate the remarkable accomplishments that lie ahead for this remarkable young individual.
 
 Thank you.
 ```
